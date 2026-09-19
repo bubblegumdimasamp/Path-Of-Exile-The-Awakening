@@ -223,4 +223,4 @@ Path of Exile: The Awakening is provided as a full free version with all feature
 Dive into the world of Wraeclast today and experience the ultimate RPG adventure with Path of Exile: The Awakening. **Download now and unleash your inner warrior!**
 
 ---
-**Last updated:** 2026-09-19 17:04:26 UTC
+**Last updated:** 2026-09-19 20:16:54 UTC
